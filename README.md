@@ -8,3 +8,8 @@
 - nagaredama
 - samidareyo
 - sakuraduki
+- start over
+- syoninyokkyu
+- ikutunokoronimodoritaika
+- jigoujitoku
+- I want tomorrow to come
